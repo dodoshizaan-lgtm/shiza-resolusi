@@ -1,0 +1,2 @@
+# shiza-resolusi
+repositori rencana 
